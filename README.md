@@ -1,4 +1,4 @@
-# zhiinx.github.io
+# zhiinx
 | . | . |
 | --- | --- |
 | Facebook | [xniihz](https://www.facebook.com/xniihz/) |
